@@ -1,4 +1,4 @@
-
+Bear for macOS new Workflow: export to PDF & focus mode offers the most advanced Bear for macOS workflow, with export to PDF and focus mode. Ideal for professionals.
 
 
 
